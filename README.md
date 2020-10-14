@@ -1,2 +1,2 @@
 hawa
-https://avishek-subedi.github.io/lol/
+time pass lol
